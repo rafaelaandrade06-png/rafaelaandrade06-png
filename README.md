@@ -4,7 +4,7 @@
 ## Gosto de fofocar com as amigas 👯‍♀️
 ## Gosto de assistir filmes e séries de romance 👩‍❤️‍👨
 
-{(https://tenor.com/pt-BR/view/disney-princess-gif-3521705041185102950)
+![](https://tenor.com/pt-BR/view/disney-princess-gif-3521705041185102950)
 
 <!--
 **rafaelaandrade06-png/rafaelaandrade06-png** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
