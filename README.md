@@ -1,8 +1,8 @@
-## Eu sou estudante 🔡
-## Eu gosto de músicas 🦋
-## Adoro me arrumar para sair e tirar várias fotos 📸
-## Gosto de fofocar com as amigas 👯‍♀️
-## Gosto de assistir filmes e séries de romance 👩‍❤️‍👨
+Eu sou estudante 🔡
+Eu gosto de músicas 🦋
+ Adoro me arrumar para sair e tirar várias fotos 📸
+ Gosto de fofocar com as amigas 👯‍♀️
+Gosto de assistir filmes e séries de romance 👩‍❤️‍👨
 
 ![](https://media1.tenor.com/m/MN-cE3-KXGYAAAAC/disney-princess.gif)
 
