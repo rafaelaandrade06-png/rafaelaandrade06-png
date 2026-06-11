@@ -1,4 +1,8 @@
-## Hi there 👋
+## Eu sou estudante 🔡
+## Eu gosto de músicas 🦋
+## Adoro me arrumar para sair e tirar várias fotos 📸
+## Gosto de fofocar com as amigas 👯‍♀️
+## Gosto de assistir filmes e séries de romance 👩‍❤️‍👨
 
 <!--
 **rafaelaandrade06-png/rafaelaandrade06-png** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
